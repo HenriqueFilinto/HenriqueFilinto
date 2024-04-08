@@ -4,7 +4,7 @@
 ## ⛩️ __PERFIL__
 
 
-- __[Perfil Github](https://github.com/HenriqueFilinto/shinjoia)__
+- __[Perfil Github]([https://github.com/HenriqueFilinto/shinjoia](https://github.com/HenriqueFilinto))__
 
 ## ♾️ __Redes Sociais__
 
