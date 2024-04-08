@@ -1,5 +1,4 @@
-#Shinjoia
-👍👍👍👍
+# Shinjoia 👍👍👍👍
 ## ♾️ __PROFILE__
 [DISCORD](https://discord.com/users/1181377413763043348)
 
